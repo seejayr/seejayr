@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @seejayr
 - 👀 I’m interested in vodka
-- 🌱 I’m currently learning how not to be a rabbit
+- 🌱 I’m currently learning how not to be a millionaire
 - 💞️ I’m looking to collaborate on enslavement of human race
 - 📫 How to reach me? Dah Noo Na Khooy to reach me.
 
